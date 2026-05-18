@@ -1,4 +1,4 @@
-hiago Guimarães Maia
+thiago Guimarães Maia
 
 🎯 Analista de Marketing | Social Media | Conteúdo | Branding | Performance
 
